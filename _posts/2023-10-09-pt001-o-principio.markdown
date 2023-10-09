@@ -1,9 +1,6 @@
 
 ### Fração 1 das 4 frações do entendimento da comunicação dos elementos.
-
  <br>
-  <br>
-
 @Interdependência 
  <br>
 A água vibra com a combustão entre a terra a água e o ar, o conzimento dos nutrienes carbonizado geram a reação em cadeia que
@@ -17,7 +14,7 @@ crescerem, produzirem e se reproduzirem... Isso é sustentabilidade na visão bi
 @Interdependência 
  <br>
 Sustentabilidade é o pleno equilibrío entre a ação e reação da interdependência dos elementos computacionais organizados
-nas grandes republicas de clusters espalhadas pelo mundo. Se algo acontecer 
+nas grandes republicas de clusters espalhadas pelo mundo.  
 
  <br> <br>
 @Interdependência 
